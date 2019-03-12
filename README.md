@@ -1,2 +1,2 @@
-# dcld.github.io
-Open Source
+# https://rizkysaskiaputra.blogspot.com
+Open Source [dcld]
